@@ -158,4 +158,4 @@ MIT License. Open for contributions!
 
 ---
 
-🚀 **Join the Hyperswarm Forex Network and contribute to a decentralized future!**
+🚀 **Project By Prince Randy**
